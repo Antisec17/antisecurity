@@ -39,7 +39,7 @@ We specialize in:
 ## 📣 Connect with Us
 
 - 🔗 [LinkedIn](https://linkedin.com/in/anti-security-84ab73370/)
-- 📧 contact@antisecurity.in (if you use a custom domain)
+- 📧 antisec17@gmail.com (if you use a custom domain)
 - 🌐 [Website – Coming Soon]
 
 ---
